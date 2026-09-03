@@ -571,7 +571,7 @@ Predicted prices should not be considered professional automotive valuations. Re
 
 **Jilla Srivardhan**
 
-GitHub: [Jillas Rivardhan on GitHub](https://github.com/jillasrivardhan?utm_source=chatgpt.com)
+GitHub: [Jilla Srivardhan on GitHub](https://github.com/jillasrivardhan?utm_source=chatgpt.com)
 
 ---
 
